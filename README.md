@@ -6,3 +6,7 @@ ${\textsf{\color{#A02A44} Lots of feelings are deceiving...}}$
 
 <sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞
 
+${\textsf{\color{#A02A44} I don't care if I'm bleeding ᨳଓ}}$ 
+
+${\textsf{\color{#A02A44} I'd rather be dying than this nightmare I'm dreaming of.}}$ 
+
